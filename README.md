@@ -4,4 +4,3 @@ Pueden visitar mi perfil en [instagram](https://www.instagram.com/heiberthp/) pa
 
 Eso es todo.
 
-## P.D. Te Amo cachetona
